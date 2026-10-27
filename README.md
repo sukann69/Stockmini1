@@ -1,0 +1,1 @@
+# Stockmini1
